@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+What I like:
+* other 🐘Elephants
+* 🍃Leaves
+* 🌳Bark
+* 🍎Fruits
+* 🛁Bathing
